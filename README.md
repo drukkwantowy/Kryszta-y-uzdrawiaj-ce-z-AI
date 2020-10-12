@@ -1,0 +1,1 @@
+# Kryszta-y-uzdrawiaj-ce-z-AI
